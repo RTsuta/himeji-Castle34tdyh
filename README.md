@@ -1,1 +1,0 @@
-# himeji-Castle34tdyh
